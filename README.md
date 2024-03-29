@@ -1,4 +1,4 @@
-![Ekran görüntüsü 2024-03-28 220354](https://github.com/beyzacaglayan/To-Do-Project-/assets/54523165/9182a8d5-e02a-4246-b3d5-7d9bb691283e)
 
-![Ekran görüntüsü 2024-03-28 220425](https://github.com/beyzacaglayan/To-Do-Project-/assets/54523165/041edfc8-8f9a-4414-bf2a-96ad3d26ee54)
+![Ekran görüntüsü 2024-03-29 032202](https://github.com/beyzacaglayan/To-Do-Project-/assets/54523165/ceeb792d-1d88-4e40-87ee-fd81e38f02a0)
 
+![Ekran görüntüsü 2024-03-29 032246](https://github.com/beyzacaglayan/To-Do-Project-/assets/54523165/9e28de51-afb4-4a42-bbd7-ac89af975346)
